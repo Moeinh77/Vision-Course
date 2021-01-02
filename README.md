@@ -1,3 +1,3 @@
 # Vision-Course
 
-چنل تلگرام:  https://t.me/DLbasu
+چنل تلگرام:  https://t.me/MLbasu
